@@ -1,13 +1,17 @@
 # 
-<p align="center"> <img src="https://64.media.tumblr.com/d6893871b4f2c9a500835e9c6b49e9cf/30b158152b64b0f7-04/s400x600/9238ccc8a7a052b080de44b63569afe5b8f7f810.pnj"width="800"   height="150">
-<p align="center"> <img src="https://64.media.tumblr.com/e3f5d6724ad37f07b7bc37b5aeb4b21c/31cef3a2c2d67941-31/s2048x3072/87fe4cc8b32212f3301b6642ecbf4ef50117ef4d.pnj"width="700" height="550">
+<p align="center"> <img src="https://i.pinimg.com/736x/ce/80/09/ce80098fa652fc40dd0293397db495c7.jpg"width="800" height="450">
 
-<p align="center"> $${\color{orange}ピカピカぴかりんじゃんけんポン ♪ キュアピース！}$$
-<p align="center"> heya! as u can see in my bio thing, my name is Mel, but you can also call me by the names of my faves (at least, if you know them.)
+<p align="center"> heya! my name is mel ^_^ i go on ponytown sometimes
 
-<p align="center"> If you see me "Hazuki Fujiwara Approved" in your strawpage or whatever, that means you've been approved by me! Hooray!
+<p align="center"> please go to my strawpage!! it'll have a better description of me but i'll try to introduce myself here as well 0w<
 
-<p align="center"> <img src="https://media1.tenor.com/m/wTAUy1ic8Q8AAAAC/ongezellig-mymy.gif"width="200"   height="200">
+<p align="right"> <img src="https://wallpapercave.com/wp/wp14010139.jpg"width="200"   height="100">
 
-<p align="center"> $${\color{RED}I}$$  $${\color{RED}BEG}$$  $${\color{RED}OF}$$  $${\color{RED}YOU}$$ please take a look at my strawpage! it'll be more detailed and frequently updated than my github.
+<p align="left"> hyperfixations - hamtaro, precure & ojamajo doremi, epithet erased, swag chan and bunny maloney
 
+<p align="left"> not a hyperfixation, still obsessed - winx, hare + guu, jam jenny jam, ongezellig, danganronpa + more >-<
+<p align="right"> i don't care much about who interacts since regardless of your dni list, people will still interact. 
+ <p align="right"> but if you have beef with my buds don't talk to me >:l 
+  <p align="center"> - - - - - - - - - - - - - - - - - - - - - -  - - - - - - - - - - - -
+   <p align="center"> THAT'S ALL!! please read my strawpage for more info!!
+    <p align="center"> gimmicks + asks appreciated!! ^w^
