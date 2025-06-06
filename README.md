@@ -5,6 +5,8 @@
 
 <p align="center"> please go to my strawpage!! it'll have a better description of me but i'll try to introduce myself here as well 0w<
 
+<p align="center"> most of the time i'll be offtab, so make sure to whisper so i can see what you want to say 2 me!! <.<
+
 <p align="right"> <img src="https://wallpapercave.com/wp/wp14010139.jpg"width="200"   height="100">
 
 <p align="left"> hyperfixations - hamtaro, precure & ojamajo doremi, epithet erased, swag chan and bunny maloney
