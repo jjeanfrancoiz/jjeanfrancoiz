@@ -11,7 +11,7 @@
 
 <p align="left"> hyperfixations - hamtaro, precure & ojamajo doremi, epithet erased, swag chan, bunny maloney and winx
 
-<p align="left"> not a hyperfixation, still obsessed - hare + guu, jam jenny jam, ongezellig, danganronpa + more >-<
+<p align="left"> not a hyperfixation, still obsessed - hare + guu, jam jenny jam, loki irl, miraculous ladybug, ongezellig, danganronpa + more 
 <p align="right"> i don't care much about who interacts since regardless of your dni list, people will still interact. 
  <p align="right"> but if you have beef with my buds don't talk to me >:l 
   <p align="center"> - - - - - - - - - - - - - - - - - - - - - -  - - - - - - - - - - - -
